@@ -11,6 +11,7 @@
 - 1 colher de ketchup de boa qualidade
 - 1/2 colher de mostarda
 - pitada de noz moscada
+- orégano
 - água fervente
 - sal
 
